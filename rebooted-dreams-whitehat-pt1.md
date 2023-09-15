@@ -1,3 +1,5 @@
+> Published to [Substack](https://stephanjohnson.substack.com/p/rebooted-dreams) and archived here on GitHub.
+
 <p align="center">
   <img src="https://pbs.twimg.com/media/BfpmNnxCMAAWPzb.jpg" width="400" />
   </p>
